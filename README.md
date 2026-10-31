@@ -2,7 +2,8 @@
 
 ​​🇲​​🇾​ ​🇵​🇷​​🇴​​🇳​​🇴​​🇺​​🇳​​🇸​ ​🇦​​🇷​​🇪​ ​🇭​​🇪​/​🇹​​🇭​​🇪​​🇾​
 
-​ɪ ᴅᴏ ᴀʀᴛ 🇦​​🇸​ ​🇦​ ​🇭​​🇴​​🇧​​🇧​​🇾 
+​ɪ ᴅᴏ ᴀʀᴛ 🇦​​🇸​ ​🇦​ ​🇭​​🇴​​🇧​​🇧​​🇾 <img width="68" height="78" alt="EddieGuestbookDoodle" src="https://github.com/user-attachments/assets/0b4a2b9b-5606-4789-b39b-b538402d116f" />
+
 
 ​🇨​​🇺​​🇷​​🇷​​🇪​​🇳​​🇹​​🇱​​🇾​ ​🇮​​🇳​ ​🇨​​🇴​​🇱​​🇱​​🇪​​🇬​​🇪​ ​🇫​​🇴​​🇷​ ​🇧​​🇮​​🇴​​🇹​​🇪​​🇨​​🇭​​🇳​​🇴​​🇱​​🇴​​🇬​​🇾  ​​<img width="36" height="43" alt="Bug_Your_Neighborhood" src="https://github.com/user-attachments/assets/a70d79b5-26eb-4273-a345-734a08e3acdb" />
 
@@ -13,4 +14,3 @@
 -->
 <img width="292" height="112" alt="Seasonspring" src="https://github.com/user-attachments/assets/5902fc54-9169-409e-9130-90f82bbf11b5" /> 
 
-<img width="100" height="77" alt="Buggle_page3" src="https://github.com/user-attachments/assets/28d41971-fe5c-4e48-b896-b164f8b9d894" />
