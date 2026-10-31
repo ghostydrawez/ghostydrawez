@@ -1,12 +1,11 @@
 
-
-ʜᴏʙʙʏ ᴀʀᴛɪꜱᴛ
+ʜᴏʙʙʏ ᴀʀᴛɪꜱᴛ <img width="69" height="90" alt="Bug_Stickers" src="https://github.com/user-attachments/assets/b68f174a-11d5-4f7a-9a81-113ddec4a586" />
 
 ᴄᴏʟʟᴇɢᴇ ꜰᴏʀ ʙɪᴏᴛᴇᴄʜɴᴏʟᴏɢʏ 
 
 ᴍʏ ᴄᴜʀʀᴇɴᴛ ɪɴᴛᴇʀᴇꜱᴛꜱ ᴀʀᴇ ᴡᴇʟᴄᴏᴍᴇ ʜᴏᴍᴇ ᴀɴᴅ ᴅᴇʟᴛᴀʀᴜɴᴇ
 
-​🇭​​🇪​/​🇹​​🇭​​🇪​​🇾  <img width="69" height="90" alt="Bug_Stickers" src="https://github.com/user-attachments/assets/b68f174a-11d5-4f7a-9a81-113ddec4a586" />​
+​
 
 <!--
 **ghostydrawez/ghostydrawez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
