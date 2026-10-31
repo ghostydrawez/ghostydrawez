@@ -2,10 +2,8 @@
 
 <!--
 **ghostydrawez/ghostydrawez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-print("I'm an artist as a hobby")
+def hello_world():
+    print("I'm an artist as a hobby")
 #I’m currently in college for Biotechnology
 #My current interests are Deltarune and Welcome Home 
 #Pronouns are He/They
