@@ -1,4 +1,3 @@
-<img width="93" height="100" alt="Bug_Your_Neighborhood" src="https://github.com/user-attachments/assets/a70d79b5-26eb-4273-a345-734a08e3acdb" />
 
 
 
@@ -6,7 +5,7 @@
 
 ​​🇲​​🇾​ ​🇵​🇷​​🇴​​🇳​​🇴​​🇺​​🇳​​🇸​ ​🇦​​🇷​​🇪​ ​🇭​​🇪​/​🇹​​🇭​​🇪​​🇾​
 
-​ɪ ᴅᴏ ᴀʀᴛ 🇦​​🇸​ ​🇦​ ​🇭​​🇴​​🇧​​🇧​​🇾​
+​ɪ ᴅᴏ ᴀʀᴛ 🇦​​🇸​ ​🇦​ ​🇭​​🇴​​🇧​​🇧​​🇾 ​<img width="93" height="100" alt="Bug_Your_Neighborhood" src="https://github.com/user-attachments/assets/a70d79b5-26eb-4273-a345-734a08e3acdb" />
 
 ​🇨​​🇺​​🇷​​🇷​​🇪​​🇳​​🇹​​🇱​​🇾​ ​🇮​​🇳​ ​🇨​​🇴​​🇱​​🇱​​🇪​​🇬​​🇪​ ​🇫​​🇴​​🇷​ ​🇧​​🇮​​🇴​​🇹​​🇪​​🇨​​🇭​​🇳​​🇴​​🇱​​🇴​​🇬​​🇾​
 
