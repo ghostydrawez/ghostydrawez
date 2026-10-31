@@ -4,13 +4,13 @@
 
 
 
-Pronouns are He/They
+​🇵​​🇷​​🇴​​🇳​​🇴​​🇺​​🇳​​🇸​ ​🇦​​🇷​​🇪​ ​🇭​​🇪​/​🇹​​🇭​​🇪​​🇾​
 
-I'm an artist as a hobby
+​🇮​❜​🇲​ ​🇦​​🇳​ ​🇦​​🇷​​🇹​​🇮​​🇸​​🇹​ ​🇦​​🇸​ ​🇦​ ​🇭​​🇴​​🇧​​🇧​​🇾​
 
-Currently in college for Biotechnology
+​🇨​​🇺​​🇷​​🇷​​🇪​​🇳​​🇹​​🇱​​🇾​ ​🇮​​🇳​ ​🇨​​🇴​​🇱​​🇱​​🇪​​🇬​​🇪​ ​🇫​​🇴​​🇷​ ​🇧​​🇮​​🇴​​🇹​​🇪​​🇨​​🇭​​🇳​​🇴​​🇱​​🇴​​🇬​​🇾​
 
-My current interests are Deltarune and Welcome Home 
+​🇲​​🇾​ ​🇨​​🇺​​🇷​​🇷​​🇪​​🇳​​🇹​ ​🇮​​🇳​​🇹​​🇪​​🇷​​🇪​​🇸​​🇹​​🇸​ ​🇦​​🇷​​🇪​ ​🇩​​🇪​​🇱​​🇹​​🇦​​🇷​​🇺​​🇳​​🇪​ ​🇦​​🇳​​🇩​ ​🇼​​🇪​​🇱​​🇨​​🇴​​🇲​​🇪​ ​🇭​​🇴​​🇲​​🇪​
 <!--
 **ghostydrawez/ghostydrawez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
