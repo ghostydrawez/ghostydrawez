@@ -3,12 +3,13 @@
 </h1>
 
 <img width="69" height="90" alt="Bug_Stickers" src="https://github.com/user-attachments/assets/b68f174a-11d5-4f7a-9a81-113ddec4a586" />
+​​<img width="36" height="43" alt="Bug_Your_Neighborhood" src="https://github.com/user-attachments/assets/a70d79b5-26eb-4273-a345-734a08e3acdb" />
 
 ​🇭​​🇪​/​🇹​​🇭​​🇪​​🇾​
 
 ​ɪ ᴅᴏ ᴀʀᴛ 🇦​​🇸​ ​🇦​ ​🇭​​🇴​​🇧​​🇧​​🇾
 
-​🇨​​🇺​​🇷​​🇷​​🇪​​🇳​​🇹​​🇱​​🇾​ ​🇮​​🇳​ ​🇨​​🇴​​🇱​​🇱​​🇪​​🇬​​🇪​ ​🇫​​🇴​​🇷​ ​🇧​​🇮​​🇴​​🇹​​🇪​​🇨​​🇭​​🇳​​🇴​​🇱​​🇴​​🇬​​🇾  ​​<img width="36" height="43" alt="Bug_Your_Neighborhood" src="https://github.com/user-attachments/assets/a70d79b5-26eb-4273-a345-734a08e3acdb" />
+​🇨​​🇺​​🇷​​🇷​​🇪​​🇳​​🇹​​🇱​​🇾​ ​🇮​​🇳​ ​🇨​​🇴​​🇱​​🇱​​🇪​​🇬​​🇪​ ​🇫​​🇴​​🇷​ ​🇧​​🇮​​🇴​​🇹​​🇪​​🇨​​🇭​​🇳​​🇴​​🇱​​🇴​​🇬​​🇾  
 
 ​🇲​​🇾​ ​🇨​​🇺​​🇷​​🇷​​🇪​​🇳​​🇹​ ​🇮​​🇳​​🇹​​🇪​​🇷​​🇪​​🇸​​🇹​​🇸​ ​🇦​​🇷​​🇪​ ​🇩​​🇪​​🇱​​🇹​​🇦​​🇷​​🇺​​🇳​​🇪​ ​🇦​​🇳​​🇩​ ​🇼​​🇪​​🇱​​🇨​​🇴​​🇲​​🇪​ ​🇭​​🇴​​🇲​​🇪​
 <!--
