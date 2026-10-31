@@ -1,4 +1,4 @@
-<img width="236" height="198" alt="Belovedhome" src="https://github.com/user-attachments/assets/dce5ee22-5d66-4452-848c-c89a094add2d" />
+  <img width="300" height="200" alt="Belovedhome" src="https://github.com/user-attachments/assets/dce5ee22-5d66-4452-848c-c89a094add2d" />
 
 
 
