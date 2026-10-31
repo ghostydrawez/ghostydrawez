@@ -11,5 +11,6 @@
 **ghostydrawez/ghostydrawez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 -->
-<img width="292" height="112" alt="Seasonspring" src="https://github.com/user-attachments/assets/5902fc54-9169-409e-9130-90f82bbf11b5" />
+<img width="292" height="112" alt="Seasonspring" src="https://github.com/user-attachments/assets/5902fc54-9169-409e-9130-90f82bbf11b5" /> 
 
+<img width="1000" height="773" alt="Buggle_page3" src="https://github.com/user-attachments/assets/28d41971-fe5c-4e48-b896-b164f8b9d894" />
