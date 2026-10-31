@@ -1,3 +1,4 @@
+<img width="49" height="60" alt="Bug_Stickers" src="https://github.com/user-attachments/assets/b68f174a-11d5-4f7a-9a81-113ddec4a586" />
 
 ​​🇲​​🇾​ ​🇵​🇷​​🇴​​🇳​​🇴​​🇺​​🇳​​🇸​ ​🇦​​🇷​​🇪​ ​🇭​​🇪​/​🇹​​🇭​​🇪​​🇾​
 
