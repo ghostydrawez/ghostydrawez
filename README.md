@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-#I'm an artist as a hobby
+print "I'm an artist as a hobby"
 #I’m currently in college for Biotechnology
 #My current interests are Deltarune and Welcome Home 
 #Pronouns are He/They
