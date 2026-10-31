@@ -1,13 +1,10 @@
 
-
-
-
-
 ​​🇲​​🇾​ ​🇵​🇷​​🇴​​🇳​​🇴​​🇺​​🇳​​🇸​ ​🇦​​🇷​​🇪​ ​🇭​​🇪​/​🇹​​🇭​​🇪​​🇾​
 
 ​ɪ ᴅᴏ ᴀʀᴛ 🇦​​🇸​ ​🇦​ ​🇭​​🇴​​🇧​​🇧​​🇾 
 
-​🇨​​🇺​​🇷​​🇷​​🇪​​🇳​​🇹​​🇱​​🇾​ ​🇮​​🇳​ ​🇨​​🇴​​🇱​​🇱​​🇪​​🇬​​🇪​ ​🇫​​🇴​​🇷​ ​🇧​​🇮​​🇴​​🇹​​🇪​​🇨​​🇭​​🇳​​🇴​​🇱​​🇴​​🇬​​🇾​​<img width="36" height="43" alt="Bug_Your_Neighborhood" src="https://github.com/user-attachments/assets/a70d79b5-26eb-4273-a345-734a08e3acdb" />
+​🇨​​🇺​​🇷​​🇷​​🇪​​🇳​​🇹​​🇱​​🇾​ ​🇮​​🇳​ ​🇨​​🇴​​🇱​​🇱​​🇪​​🇬​​🇪​ ​🇫​​🇴​​🇷​ ​🇧​​🇮​​🇴​​🇹​​🇪​​🇨​​🇭​​🇳​​🇴​​🇱​​🇴​​🇬​​🇾  ​​<img width="36" height="43" alt="Bug_Your_Neighborhood" src="https://github.com/user-attachments/assets/a70d79b5-26eb-4273-a345-734a08e3acdb" />
+
 ​🇲​​🇾​ ​🇨​​🇺​​🇷​​🇷​​🇪​​🇳​​🇹​ ​🇮​​🇳​​🇹​​🇪​​🇷​​🇪​​🇸​​🇹​​🇸​ ​🇦​​🇷​​🇪​ ​🇩​​🇪​​🇱​​🇹​​🇦​​🇷​​🇺​​🇳​​🇪​ ​🇦​​🇳​​🇩​ ​🇼​​🇪​​🇱​​🇨​​🇴​​🇲​​🇪​ ​🇭​​🇴​​🇲​​🇪​
 <!--
 **ghostydrawez/ghostydrawez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
