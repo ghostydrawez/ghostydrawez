@@ -1,4 +1,4 @@
-<img width="293" height="360" alt="Bug_Your_Neighborhood" src="https://github.com/user-attachments/assets/a70d79b5-26eb-4273-a345-734a08e3acdb" />
+<img width="93" height="60" alt="Bug_Your_Neighborhood" src="https://github.com/user-attachments/assets/a70d79b5-26eb-4273-a345-734a08e3acdb" />
 
 
 
